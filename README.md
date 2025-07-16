@@ -4,4 +4,4 @@
 - 💞️ Busco colaborar en proyectos de desarrollo de aplicaciones en java.
 - 📫 Cómo llegar a mí: mijail.cp3@hotmail.com
 - 😄 Pronombres: Mijailalex
-- ⚡ Dato curioso: soy coordinador de transporte, así como analista de programación y planificación.
+- ⚡ Dato curioso: soy analista de programación y planificación.
